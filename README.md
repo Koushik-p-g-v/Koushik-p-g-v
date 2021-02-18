@@ -1,7 +1,6 @@
-### Hi there 👋
+### KOUSHIK PASUPULETI👋
 
-
-**Koushik-p-g-v/Koushik-p-g-v** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### 😎😎😎😎😎
 
 Here are some ideas to get you started:
 
